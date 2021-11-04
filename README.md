@@ -1,1 +1,0 @@
-# AkhiJamali-profile.github.io
